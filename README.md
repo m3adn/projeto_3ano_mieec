@@ -1,2 +1,2 @@
-# projeto_3ano_mieect
+# projeto_3ano_mieec
 To be updated
